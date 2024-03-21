@@ -2,6 +2,8 @@
 
 Professional Skills Coursework: Structured Innovation
 
+GROUP 13
+
 References:
 
 Altshuller, G. (1984). Creativity as an Exact Science. Gordon and Breach Science Publishers.
